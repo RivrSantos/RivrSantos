@@ -18,7 +18,7 @@ Sou apaixonado por transformar tecnologia em soluções práticas e inovadoras.
 
    🤝 Aberto a projetos freelance e novas oportunidades
 
-📫 Como me encontrar: https://www.linkedin.com/in/rivaldo-ferreira
+📫 Como me encontrar: https://wa.me/message/XGDS3MVTKCAJI1
 
 # 🚀 Bora construir juntos o futuro!
 
